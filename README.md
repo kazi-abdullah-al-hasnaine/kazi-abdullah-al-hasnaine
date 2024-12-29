@@ -1,5 +1,5 @@
 # 💫 About Me:
-I currently a student of North South University, Bangladesh
+currently a student of North South University, Bangladesh
 
 
 ## 🌐 Socials:
